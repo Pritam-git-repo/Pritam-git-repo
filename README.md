@@ -3,7 +3,6 @@
 
 Email Me 👉 ✉️ **pshee898@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Enter your project info here
 - 🌱 **I’m currently learning:** DSA || ML
 - 📫 **How to reach me:** pshee898@gmail.com
 - 😄 **Pronouns:** Mr. Pritam
